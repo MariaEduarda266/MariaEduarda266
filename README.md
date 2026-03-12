@@ -6,4 +6,4 @@
 
 🎯 Meu objetivo: Estou em busca da minha primeira oportunidade de estágio em Desenvolvimento/TI, focada em aprender e agregar valor à equipe, enquanto atuo como Jovem Aprendiz para desenvolver minhas soft skills.
 
-📫 Como falar comigo: [Link do seu LinkedIn] | dud.madu10@gmail.com
+📫 Como falar comigo: https://www.linkedin.com/in/mariaeduarda1331/ | dud.madu10@gmail.com
